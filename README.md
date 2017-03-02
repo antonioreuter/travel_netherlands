@@ -38,6 +38,10 @@ Muito bem, você já entregou tudo no consulado e agora está agurdando pelo seu
 
 Documentação:
 1- Certidão de Nascimento. Precisa ser recente, tirada ao menos nos últimos 6 meses. Caso você esteja viajando com sua família, eles também irão precisar.
+
 2- Certidão de Casamento. Caso você esteja se mudando com sua família você precisa tirar uma certidão de casamento recente. Caso você ainda não seja casado ou esteja casado no regime de união estável o meu conselho para você é casar no cívil. Isso dará mais segurança para a sua esposa além de facilitar na burocracia. Aqui na Holanda eles não reconhecem a União Estável.
+
 3- Uma vez que você tenha todas as certidões em mãos você precisa ["Apostilar"](http://www.cnj.jus.br/poder-judiciario/relacoes-internacionais/convencao-da-apostila-da-haia) todos os documentos. Você precisa procurar na sua cidade quais cartórios façam esse tipo de serviço.
-4
+
+3- Uma vez que você tenha todas as certidões em mãos você precisa ["Apostilar"](http://www.cnj.jus.br/poder-judiciario/relacoes-internacionais/convencao-da-apostila-da-haia) todos os documentos. Você precisa procurar na sua cidade quais cartórios façam esse tipo de serviço.
+4- Agora que você j
