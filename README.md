@@ -43,8 +43,6 @@ Documentação:
 
 3- Uma vez que você tenha todas as certidões em mãos você precisa ["Apostilar"](http://www.cnj.jus.br/poder-judiciario/relacoes-internacionais/convencao-da-apostila-da-haia) todos os documentos. Você precisa procurar na sua cidade quais cartórios façam esse tipo de serviço.
 
-3- Uma vez que você tenha todas as certidões em mãos você precisa ["Apostilar"](http://www.cnj.jus.br/poder-judiciario/relacoes-internacionais/convencao-da-apostila-da-haia) todos os documentos. Você precisa procurar na sua cidade quais cartórios façam esse tipo de serviço.
-
 4- Agora que você já está com toda a documentação apostilada em mãos é preciso traduzi-las para Holandes. Aqui não tem muito para onde correr, so podemos escolher um Tradutor reconhecido pelo consulado. Você pode conferir [aqui](http://saopaulo.nlconsulado.org/servicos/visto-passaporte-e-outros-servicos-consulares/tradutores-juramentados/tradutor-juramentado-reconhecido-no-brasil.html) o tradutor mais perto de você. Caso não tenha um perto, você pode encaminhar sua documentação via sedex. Segue uma dica aqui, confirme com o tradutor quando ele poderá encaminhar para você toda a documentação, eles costumam demorar. Caso você tenha urgência, recomendo pagar um pouco mais para ter prioridade.
 
 ###E agora, onde vou morar?
