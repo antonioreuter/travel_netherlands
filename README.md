@@ -36,7 +36,8 @@ Pronto, você ja encaminhou todos os dados para a empresa e é hora de se dirigi
 
 Muito bem, você já entregou tudo no consulado e agora está agurdando pelo seu visto. Bem, infelizmente ainda não da para relaxar, ainda temos muito o que fazer. Para se registrar na prefeitura da cidade que você irá morar, e dar entrada para conseguir seu visto permanente. Para mim essa foi a etapa mais complicada.
 
-Documentação:
+**Documentação:**
+
 1- Certidão de Nascimento. Precisa ser recente, tirada ao menos nos últimos 6 meses. Caso você esteja viajando com sua família, eles também irão precisar.
 
 2- Certidão de Casamento. Caso você esteja se mudando com sua família você precisa tirar uma certidão de casamento recente. Caso você ainda não seja casado ou esteja casado no regime de união estável o meu conselho para você é casar no cívil. Isso dará mais segurança para a sua esposa além de facilitar na burocracia. Aqui na Holanda eles não reconhecem a União Estável.
