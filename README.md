@@ -27,7 +27,7 @@ Pronto, você ja encaminhou todos os dados para a empresa e é hora de se dirigi
 
 4- Leve junto com você todos os seus passaportes caso possua mais de um, mesmo os vencidos.
 
-5- Caso você não more na cidade de São Paulo, você pode solicitar que o visto seja encaminhado pelos correios para você.
+5- Caso você não more na cidade de São Paulo, você pode solicitar que o visto seja encaminhado pelos correios para você, assim não é necessário realizar uma nova viagem para retirar o passaporte.
 
 *Não é preciso pagar nada. Eles irão apenas coletar seus documentos e suas digitais. Uma vez entregue todos os documentos, essa etapa costuma durar por volta de 2 semanas. O visto de trabalho que você irá tirar aqui tem validade de 3 meses, mas não se assuste. Uma vez que você estiver em solo holandes voce deve se apresentar a prefeitura da sua cidade para da entrada na sua documentação. Confira os documentos necessários na etapa abaixo*
 
