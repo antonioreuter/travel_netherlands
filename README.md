@@ -25,7 +25,7 @@ Pronto, você ja encaminhou todos os dados para a empresa e é hora de se dirigi
 
 3- É preciso levar preenchido o formulário MVV. Você poderá encontrá-lo [aqui](https://www.government.nl/documents/forms/2015/07/30/mvv-issue-form).
 
-4- Leve junto com você todos os seus passaportes caso possua mais de um, mesmo os vencidos.
+4- Leve junto com você todos os seus passaportes caso possua mais de um, mesmo os vencidos. Caso seja casado, leve consigo a certidao de casamento. Caso tenha filhos, eles devem ir com voce, porem nao custa nada dar uma ligada antes no consulado para levantar mais informacoes.
 
 5- Caso você não more na cidade de São Paulo, você pode solicitar que o visto seja encaminhado pelos correios para você, assim não é necessário realizar uma nova viagem para retirar o passaporte.
 
